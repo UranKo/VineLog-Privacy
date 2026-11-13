@@ -84,7 +84,7 @@ Any changes will be reflected by updating the date at the top of this document.
 
 If you have any questions regarding this Privacy Policy, please contact:
 
-[your@email.com](mailto:your@email.com)
+[urbekk@gmail.com](mailto:urbekk@gmail.com)
 
 ---
 
